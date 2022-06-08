@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AshishSysfore
+- 👀 I’m interested in gaming, and troubleshooting(both are challenging).
+- 🌱 I’m currently learning azure devops(change with time).
+- 📫 How to reach me ... ashishkr240795@gmail.com - please dont fill with spam:)
